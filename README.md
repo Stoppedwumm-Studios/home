@@ -16,3 +16,6 @@ Started as roblox coder, then did a bit Python and Node
 <https://twitch.tv/stoppiontherun>
 
 <https://github.com/Stoppedwumm-Studios/>
+
+# Site Changes
+I don't really record these so its only here for the records
