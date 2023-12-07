@@ -21,6 +21,8 @@ Started as roblox coder, then did a bit Python and Node
 I don't really record these so its only here as some placeholder maybe
 
 # ?
+Ok wtf?
+
 ## What am I even writing here
 kkkaoksokoakonjujninnnfnnefunuenusnjanjsnandnfnksadnjndnsadndkjnjks
 
@@ -29,3 +31,71 @@ the end is never the the end is never the the end is never the the end is never 
 
 ## Ok I'm joking
 Or am I?
+
+## Secret
+Scroll to the end
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+<https://r.mtdv.me/mybigsecret>
