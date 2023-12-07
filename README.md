@@ -18,4 +18,14 @@ Started as roblox coder, then did a bit Python and Node
 <https://github.com/Stoppedwumm-Studios/>
 
 # Site Changes
-I don't really record these so its only here for the records
+I don't really record these so its only here as some placeholder maybe
+
+# ?
+## What am I even writing here
+kkkaoksokoakonjujninnnfnnefunuenusnjanjsnandnfnksadnjndnsadndkjnjks
+
+## The end is never the end is never the the end is never the the end is never the the end is never the the end is never the the end is never the the end is never the the end is never the the end is never the the end is never the the end is never the the end is never the the end is never the 
+the end is never the the end is never the the end is never the the end is never the the end is never the the end is never the the end is never the the end is never the the end is never the the end is never the the end is never the the end is never the the end is never the the end is never the the end is never the the end is never the 
+
+## Ok I'm joking
+Or am I?
