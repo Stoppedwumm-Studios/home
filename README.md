@@ -12,5 +12,7 @@ Started as roblox coder, then did a bit Python and Node
 
 ## Some links maybe?
 <https://youtube.com/@stoppiontherun>
+
 <https://twitch.tv/stoppiontherun>
+
 <https://github.com/Stoppedwumm-Studios/>
